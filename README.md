@@ -1,2 +1,2 @@
-# Blanco-
-Una pagina donde esta marca llamada BLANCO pueda vender sus prendas
+# Blanco
+Una pagina donde esta marca llamada BLANCO pueda vender sus prendas de ropa, para damas y caballeros
